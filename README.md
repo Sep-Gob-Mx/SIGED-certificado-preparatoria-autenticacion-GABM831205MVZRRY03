@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-GABM831205MVZRRY03
+GABM831205MVZRRY03
